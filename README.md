@@ -2,7 +2,7 @@
 
 Holla!
 
-I’m James Bello (a.k.a @JaymieBelz). I'm an engineering student of @AltSchoolAfrica. I'm energetic and motivated to learning new ideas and cloud ☁️ related stuff and I always look forward to working with people who are more experienced than me.
+I’m James Bello (a.k.a @JaymieBelz). I'm an engineering student of @AltSchoolAfrica. I'm energetic and motivated to learning new ideas and cloud ☁️ related stuff.I look forward to working with people who are more experienced than me.
 Also,I’m interested in both men and women, contributing to open source projects and meeting new people.
 - 🌱 I’m currently learning Cloud Engineering @ AltSchool.
 
