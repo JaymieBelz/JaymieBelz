@@ -9,7 +9,7 @@ Also,I’m interested in both men and women, contributing to open source project
 📫 You can reach me via;
 Twitter: https://twitter.com/Jamesbello_?t=2NGJRIwtelMqxE02RDVMsg&s=09
 
-Instagram: https://www.instagram.com/p/Co-1oCvISPn/?igshid=YTgzYjQ4ZTY=
+Instagram: @jaymiebelz._
 
 
 
