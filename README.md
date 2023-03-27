@@ -2,12 +2,13 @@
 
 Holla!
 
-I’m James Bello (a.k.a @JaymieBelz). I'm an engineering student of @AltSchoolAfrica. I'm energetic and motivated to learning new ideas and cloud ☁️ related stuff. I look forward to working with people who are more experienced than me.
+I’m James Bello. I'm an engineering student of @AltSchoolAfrica. I am energetic and motivated to learning new ideas and cloud ☁️ related stuff. I look forward to working with people who are more experienced than me.
 Also,I’m interested in both men and women, contributing to open source projects and meeting new people.
-- 🌱 I’m currently learning Cloud Engineering @ AltSchool.
+- 🌱 DevOps Engineering @ AltSchool.
 
 📫 You can reach me via;
-
+Twitter: https://twitter.com/Jamesbello_?t=2NGJRIwtelMqxE02RDVMsg&s=09
+Instagram: https://www.instagram.com/p/Co-1oCvISPn/?igshid=YTgzYjQ4ZTY=
 
 
 
